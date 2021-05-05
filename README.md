@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @chris-4444. 
 - 👀 I’m looking to collaborate on doing documentation, tech stuff, and volunteering.
-- 📫 Hit me up: chryzzy4444@gmail.com 
+- 📫 Hit me up: [Chris E LinkedIn](https://www.linkedin.com/in/chrisestepa/)
 
 
 <!---
